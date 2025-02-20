@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on [Los Galactique RP](https://discord.gg/WKQmQPuXbF)
 
-- 🌱 I’m currently learning **Rien**
+- 🌱 I’m currently learning **Nothing**
 
 - 🤝 I’m looking for help with **Our real estate agency offers a comprehensive website in .md format with all necessary information, and you can also find the Los Galactique RP regulations on our site.**
 
